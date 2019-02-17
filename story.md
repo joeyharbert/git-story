@@ -1,1 +1,1 @@
-Onc eupon a time there was a girl named Lower A. She was very upset all the time. If she was called on in class she would scream and not do anything. No matter what the teacher tried, she would not cooperate. No one liked Lower A. As a result, no one played with her at recess.
+Onc eupon a time there was a girl named Lower A. She was very upset all the time. If she was called on in class she would scream and not do anything. 
